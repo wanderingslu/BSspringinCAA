@@ -7,13 +7,20 @@
 
 ## 斯蒂格勒-危机与开放（The Risk and the Open）
 主持：许煜、陆兴华
+
 法语翻译：张海裕 
+
 时间：2019年3月11日、18日、25日、4月1日、8日 下午2:00——5:00
+
 地点：中国美术学院南山校区4号楼405室 
 
 ## 许煜-艺术与宇宙技术（Art and Cosmotechnics）
 时间： 2019年3月11日、12日、25日、4月8日，上午10:00——12:00
+
 3月11日：论技术多样性（On Technodiversity）
+
 3月12日：大地与世界（Earth and World）
+
 3月25日：山与水（Mountain and Water）
+
 4月8日：何谓感知化？（What is called sensibilizing?）
